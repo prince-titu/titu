@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
-#😉
+# 😉
 
 - 😈 Time to show up 😈
 - 🤪 Time to setup 🤪
